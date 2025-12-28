@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on no one
 - 📫 How to reach me: Email sussyamongus@tuta.io
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: im actually a senior crew member in roblox ronald's
+- ⚡ Fun fact: i like cheese
 
 <!---
 tuyet-3011/tuyet-3011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
