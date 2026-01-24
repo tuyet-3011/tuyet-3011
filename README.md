@@ -5,6 +5,7 @@
 - 📫 How to reach me: Email sussyamongus@tuta.io
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like cheese
+- sadly penguinchess main is archived :(
 
 <!---
 tuyet-3011/tuyet-3011 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
