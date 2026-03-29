@@ -2,7 +2,7 @@
 - 👀 I’m interested in Roblox
 - 🌱 I’m currently learning Python
 - 💞️ I’m looking to collaborate on no one
-- 📫 How to reach me: Email sussyamongus@tuta.io
+- 📫 How to reach me: Email tungtungmango4@gmail.com
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: i like cheese
 - sadly penguinchess main is archived :(
