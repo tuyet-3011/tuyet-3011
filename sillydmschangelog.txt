@@ -1,0 +1,5 @@
+1.1:
+Added Argon2id
+Faster loading
+1.0:
+Initial release
